@@ -1,4 +1,4 @@
-#  
+#  premium brookhaven rp Script is the best brookhaven rp Script, featuring auto-upgrade and one-hit kill. Safe and powerful for all your needs.
 
 
 
